@@ -42,7 +42,7 @@ I am a 3rd- year **Bachelor of Computing** student at [Belgium Campus iTversity]
 ## 📫 Let's Connect!
 
 - 💼 **LinkedIn:** (www.linkedin.com/in/armand-erasmus-38531a294)
-- 📄 **CV:** (https://drive.google.com/file/d/1YcoGJH6KsLYeyF-TgcMuffYP1OSGclyW/view?usp=drive_link)
+- 📄 **CV:** (https://drive.google.com/file/d/1YcoGJH6KsLYeyF-TgcMuffYP1OSGclyW/view?usp=sharing)
 - 📧 **Email:** Armanderas10@gmail.com
   
 
